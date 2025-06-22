@@ -1,2 +1,1 @@
-# Minionlab-Automation-Bot
-Complete 25 Stars to Make It Public
+⭐ Complete 22 Stars and I will Drop it.
