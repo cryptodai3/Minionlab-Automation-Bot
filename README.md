@@ -1,2 +1,2 @@
 # Minionlab-Automation-Bot
-Complete 20 Stars to Make It Public
+Complete 25 Stars to Make It Public
